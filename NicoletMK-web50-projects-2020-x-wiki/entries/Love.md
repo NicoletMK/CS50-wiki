@@ -1,0 +1,1 @@
+Love is a tender passion for something or somebody.

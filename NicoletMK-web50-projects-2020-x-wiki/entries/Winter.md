@@ -1,0 +1,1 @@
+Winter is a relatively cold weather in a year.

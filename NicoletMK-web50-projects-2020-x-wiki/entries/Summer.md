@@ -1,0 +1,1 @@
+Summer is a hot season.
